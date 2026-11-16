@@ -43,4 +43,4 @@
 
 ## 📫 Estágio
 
-Disponível para estágio curricular presencial perto de Braga, a partir de fevereiro de 2027.
+Disponível para estágio curricular presencial perto de Braga/Viana do Castelo, a partir de fevereiro de 2027.
